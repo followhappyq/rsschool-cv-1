@@ -1,6 +1,6 @@
 # Oksana Bolbat #
 
-Phone: 0689101630   
+Phone: +380689101630   
 E-mail: oksana.bolbat@gmail.com  
 Skype: sana.dov  
 LinkedIn: https://ua.linkedin.com/in/oksana-bolbat-496787138  
